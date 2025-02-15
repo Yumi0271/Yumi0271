@@ -1,4 +1,4 @@
-<img align="right" src="https://count.getloli.com/get/@:Yumi0271theme=rule34" width="300px" height="200px">
+<img align="right" src="https://count.getloli.com/get/@:Yumi0271theme=rule34" width="350px" height="250px">
 
 ##  
 
