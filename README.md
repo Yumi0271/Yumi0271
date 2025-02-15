@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi! This is Yumi~meow 👋
 
 <!--
 **Yumi0271/Yumi0271** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
